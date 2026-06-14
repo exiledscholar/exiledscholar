@@ -13,5 +13,9 @@ I LOVE DOTTOLUC!!!!!!!!!!!!!!!!!!!hello everypony pls sign ata Ok? Ok, also sign
 <p align="center">
 ^^^ me n cain ......... #candytoymakerpilled
 </p>
+<p align="center">
+ read <a href="https://rentry.co/exiledscholar
+">rentry</a> !! does NOT look good on mobile SOWWY
+</p>
 <p align="center"> 
 <img width="120px" src="https://file.garden/Z2azQBUlakNoNbak/konata.gif"> <img width="120px" src="https://file.garden/Z2azQBUlakNoNbak/28.png"> <img width="120px" src="https://file.garden/Z2azQBUlakNoNbak/IMG_3532.jpeg"> <img width="120px" src="https://file.garden/Z2azQBUlakNoNbak/IMG_3535.png"> <img width="120px" src="https://file.garden/Z2azQBUlakNoNbak/IMG_3526.png"> <img width="120px" src="https://file.garden/Z2azQBUlakNoNbak/IMG_3527.png"> 

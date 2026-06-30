@@ -7,7 +7,7 @@ I LOVE DOTTOLUC!!!!!!!!!!!!!!!!!!!hello everypony pls sign ata Ok? Ok, also sign
 </p>
 <p align="center">
 <a href="https://rentry.co/exiledscholar
-">rentry</a> !! does NOT look good on mobile SOWWY
+">rentry</a> !! currently remaking sowy
 </p>
 <p align="center">
   also im mostly offtab Ok\ pls whisper me otherwis i Might miss ur message

@@ -1,5 +1,5 @@
 <p align="center"> <img width="300px" src="https://file.garden/Z2azQBUlakNoNbak/Untitled324_20260731195420.webp"> </p>
-<p align="center"> WAS featured on og <a href="https://github.com/exiledscholar">fan-town</a> as dotties biggest fan ---- I DONT KNOW WHAT HAPPENED TO FAN-TOWN? Plsno </p>
+<p align="center"> me and toby in the toycandy car </p>
 <p align="center"> 
 <a href="https://rentry.co/webttorepaws
 ">rentry</a> Ok </p>
